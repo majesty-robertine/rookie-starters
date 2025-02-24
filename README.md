@@ -1,2 +1,2 @@
 # rookie-starters
-All my work on my first year of college
+All my work in my first year of college
